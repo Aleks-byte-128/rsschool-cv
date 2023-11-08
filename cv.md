@@ -2,7 +2,7 @@
 *********
 ## Contact information:
 **E-mail:** tolstov.mirsud24@yandex.ru
-**Discord** information coming soon
+**Discord** Sanek (@Aleks-byte-128)
 *********
 ## About Myself:
 Brief information about yourself (your goal and priorities, highlight your strengths, tell us about your work experience, if you have no work experience, tell us about your desire to learn and learn new things)
