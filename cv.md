@@ -30,3 +30,4 @@ including completed courses and trainings
 Russian - Native
 English - Pre-Intermediate level
 *********
+The end
