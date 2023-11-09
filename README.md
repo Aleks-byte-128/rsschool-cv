@@ -1,2 +1,1 @@
-# rsschool-cv
-RS SCHOOL
+https://Aleks-byte-128.github.io/rsschool-cv/
